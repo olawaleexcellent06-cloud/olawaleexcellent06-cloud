@@ -88,7 +88,7 @@ I'm currently focused on:
 ## 📫 Connect With Me
 
 - GitHub: https://github.com/olawaleexcellent06-cloud
-- LinkedIn: *(Add your LinkedIn profile here once updated.)*
+- LinkedIn: *( https://www.linkedin.com/in/olawale-excellent-olamilekan-3b73a9378)*
 
 ---
 
